@@ -1,2 +1,2 @@
-# CPPT_Halii_OM_KI-24_1
+# CPPT_Halii_OM_KI-34_2
 КЗП. Лабораторні роботи
